@@ -1,0 +1,2 @@
+# SP-pitagorasz
+:D
